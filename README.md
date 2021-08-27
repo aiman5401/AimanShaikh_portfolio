@@ -1,3 +1,3 @@
-# AimanShaikh_portfoli0\o
+# AimanShaikh_portfolio
 
 showcasing my work
